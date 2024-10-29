@@ -1,1 +1,1 @@
-# kolledzh https://tamirlanshakh.github.io/kolledzh/
+# kolledzh https://shakhtim.github.io/kolledzh/
